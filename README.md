@@ -1,0 +1,2 @@
+# abdirimov.javohirbek
+javohirbek
